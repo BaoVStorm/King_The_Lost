@@ -10,10 +10,14 @@
  
 *🔗 *Here my game review:** <a href="https://www.facebook.com/watch/?v=1446727956170513">Review Video</a>
 
+![image](https://github.com/user-attachments/assets/b266c916-4a6c-4659-9de0-a4173a5a18db)
+
 # 🕹️ Giới thiệu:
 - **Người Thực hiện:** Trần Vũ Bão.
 - **Tên trò chơi:** King The Lost.
 - **Thời gian phát hành:** 11. 2023.
+- [Link Dowwnload Here](https://drive.google.com/file/d/1NOjwNs_cXS4Xbt6YevrQHI878jgwpTGl/view?usp=sharing)
+
 
 <br>
 
